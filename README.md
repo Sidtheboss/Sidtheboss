@@ -2,7 +2,7 @@ Hey Buddyy I`m Siddharth
 - 👀 I’m interested in learning new things day in & day out.
 - 🌱 I’m currently learning and improving on myself. Coding & Collaborating.
 -  I’m looking to collaborate on the offers and internships that i get from my skills and upgradation.
--  Growth thats it.
+-  Working on myself for WorKing & developing with the environment soon.
 - 
   
 
