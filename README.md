@@ -1,8 +1,9 @@
-Hey Buddyy I`m Siddharth 
+Hey Bud  Siddharth here 
 - 👀 I’m interested in learning new things day in & day out.
 - 🌱 I’m currently learning and improving on myself. Coding & Collaborating.
 -  I’m looking to collaborate on the offers and internships that i get from my skills and upgradation.
--  Working on myself for  developing with the environment soon.
+-  Interested and passionate in data analytics and machine learning.
+-  Moving towards the field of Data.
 -  KAIZEN!
   
 
